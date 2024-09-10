@@ -17,3 +17,7 @@ also known as **Mary Danielle Parro/Dane** **CN32**
 
 
 ![coding](https://github.com/user-attachments/assets/986a4cd7-cd06-419d-8ead-e55622e72275)
+
+
+4. I play genshin !
+[wooooooo](https://act.hoyolab.com/app/community-game-records-sea/index.html?bbs_presentation_style=fullscreen&bbs_auth_required=true&gid=2&user_id=79780749&utm_source=hoyolab&utm_medium=gamecard&bbs_theme=light&bbs_theme_device=1#/ys)
